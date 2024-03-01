@@ -12,3 +12,5 @@ Part 5: The Return of Jennifer - Libyan Jennifer
 Part 6: Time is an Illusion - Nothing makes sense in a land of time confusion.
 
 Part 7: The Race Against Time - Libyan Doc Dies. Libyan Marty Goes to School.
+
+Part 8: America Terrorists are upsetting the Land. Time travel hover boards are INVENTED!
