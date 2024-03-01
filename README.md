@@ -14,3 +14,7 @@ Part 6: Time is an Illusion - Nothing makes sense in a land of time confusion.
 Part 7: The Race Against Time - Libyan Doc Dies. Libyan Marty Goes to School.
 
 Part 8: America Terrorists are upsetting the Land. Time travel hover boards are INVENTED!
+
+<img src="https://github.com/nathanielburman/dumbo-disney-back-to-the-future/blob/main/dream_TradingCard%20(66).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/dumbo-disney-back-to-the-future/blob/main/dream_TradingCard%20(65).jpg" width="100%"></img>
+<img src="https://github.com/nathanielburman/dumbo-disney-back-to-the-future/blob/main/dream_TradingCard%20(64).jpg" width="100%"></img>
