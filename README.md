@@ -1,7 +1,7 @@
 # dumbo-disney-back-to-the-future
-Part 1: Doc steals uranium from Libyan terrorists, Doc made the time machine for the Libyans. They own the time machine. Libya connects to the 50s. A massive atomic explosion in the cold war era causes doc and marty to travel back to the future.
+Part 1: Doc is an old white woman, and steals uranium from Libyan terrorists, Doc made the time machine for the Libyans. Lybians own the time machine, time to pay up Doc. Libya connects to the 50s. A massive atomic explosion in the cold war era causes female doc and female white marty to travel back to the future.
 
-Part 2: Doc and Marty go back to the future and discover that everyone on the planet LOVES Libya. Libya is the world power. 
+Part 2: Female Doc and Female Marty go back to the future and discover that everyone on the planet LOVES Libya. Libya is the world power. 
 
 Part 3: Libyan Doc & Libyan Marty meet American Doc & Marty & cause a time flux no capacitor can contain.
 
